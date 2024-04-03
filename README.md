@@ -4,7 +4,7 @@
 - 💞️ I’m looking for MSIB internship
 - 📫 How to reach me contact me in Whatsapp 082296566649
 - 😄 Pronouns: He
-- ⚡ Fun fact: openwide to others 
+- ⚡ Fun fact: I can manage time well  
 
 <!---
 JasonEvarianto/JasonEvarianto is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
